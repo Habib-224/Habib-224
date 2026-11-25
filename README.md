@@ -122,9 +122,9 @@ I'm currently focusing on becoming a stronger **Product Engineer** by deepening 
 
 ## 📫 Let's Connect
 
-- 💼 LinkedIn: [Your LinkedIn]
-- 📧 Email: [Your Email]
-- 🌐 Portfolio: [Coming soon]
+- 💼 LinkedIn: 
+- 📧 Email: thiernohabibbah176@gmail.com
+- 🌐 Portfolio: Coming soon
 
 ---
 
